@@ -1,1 +1,3 @@
-# bank-account-malta
+# Bank Account Malta
+Opening a [bank account Malta](https://wamo.io/blog/how-to-open-bank-account-malta) is not like opening one in your home country, where all you need is a walk into any bank down the street with your driver’s license and 10$. Malta banks are very cautious in dealing with new clients that are not introduced by someone they know.
+In order to carry out a commercial activity, a Maltese company must have a bank account. The corporate bank account is usually set up during the company registration procedure, as the founders must deposit the share capital of the business. After that, most of the company’s transactions will be reflected in their bank statements.
